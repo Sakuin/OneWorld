@@ -1,2 +1,0 @@
-# OneWorld
-The Story EA
